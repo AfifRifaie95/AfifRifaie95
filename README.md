@@ -5,7 +5,7 @@
 
 __________________________________________________________________________________
 
-⭐Afif works as a Data Analyst intern. 5 years experience as Business Development in Nu Skin, who help teams to analyze the market trend of Malaysia. Afif watches anime, love reading kindle, obsessed about nature and a train lover. 
+⭐ Experienced as a Data Ops. 5 years experience as Business Development (Account), who help teams to analyze the market trend of Malaysia. Afif watches anime, love reading kindle, obsessed about nature and a train lover. 
 
 🌍  I'm based in Kajang, Selangor
 ✉️  You can contact me at afifrifaie1995@gmail.com / afifrifaie95@github.com / 6012-9149414

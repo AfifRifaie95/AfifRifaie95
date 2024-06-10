@@ -8,7 +8,7 @@ ________________________________________________________________________________
 ⭐ Experienced as a Data Operations. 5 years experience as Business Development (Account), who help teams to analyze the market trend of Malaysia. 
 
 🌍  I'm based in Kajang, Selangor
-✉️  You can contact me at afifrifaie1995@gmail.com / afifrifaie95@github.com / 6012-9149414
+✉️  You can contact me at afifrifaiemohd@gmail.com / afifrifaie95@github.com / 6012-9149414
 
 Skills
 1. Microsoft SQL Server

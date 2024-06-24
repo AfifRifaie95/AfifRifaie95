@@ -1,6 +1,6 @@
 
 
-🥑Data Analyst intern at AOPG, a premier IT publisher
+🥑Data enthusiast 
 👩🏽‍💻Founder Sofea Suites Troika Kota Bharu
 
 __________________________________________________________________________________
